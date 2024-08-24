@@ -1,6 +1,6 @@
 ### 👋 · Hi
 
-I'm a Developer & Pluginner based in Italy,
+I'm a Developer & Pluginner located in Italy,
 
 at the moment i work for StaryMC, KSCraft.
 
