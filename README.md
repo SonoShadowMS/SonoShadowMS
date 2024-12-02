@@ -3,7 +3,7 @@
 <br/>
 I'm a Developer & Pluginner located in Italy,
 
-at the moment i work for StaryMC, KSCraft.
+at the moment i work for StaryMC, QYMA and Next Solutions.
 
 And i would like to know people that love's what i do.
 ‎
